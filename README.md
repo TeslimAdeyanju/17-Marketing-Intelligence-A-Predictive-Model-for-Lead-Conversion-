@@ -1,1 +1,1 @@
-# 17-Marketing-Intelligence-A-Predictive-Model-for-Lead-Conversion-
+# 17-Marketing-Intelligence-A-Predictive-Model-for-Lead-Conversion
